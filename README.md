@@ -1,0 +1,1 @@
+# Sole24Ore_Project
